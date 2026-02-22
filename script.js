@@ -1,1 +1,1 @@
-Favorite football team: Barcelona
+Favorite football team: FC Barcelona
